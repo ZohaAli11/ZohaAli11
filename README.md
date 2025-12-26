@@ -85,16 +85,6 @@ Results-driven SEO professional with proven expertise in optimizing websites for
 
 ---
 
-### 🤝 Volunteer Experience
-
-**Co-Convenor** | Al Azhar Garden Economic Planning Board (June 2018 – Present)
-- Led community-driven economic planning projects focused on development and sustainability
-
-**Member** | Al Azhar Garden Social Welfare Board (Apr 2019 – Mar 2022)
-- Contributed to social welfare programs supporting community well-being and underprivileged groups
-
----
-
 ### 🌟 Core Competencies
 - Task Oriented | Critical Thinking | Time Management | Growth Mindset
 - Teamwork | Communication | Interpersonal Skills
